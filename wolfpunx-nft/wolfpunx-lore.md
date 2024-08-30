@@ -1,0 +1,13 @@
+# 🐺 WolfPunx Lore
+
+The WolfPunx Lore began many moons ago...
+
+Onward Max and Luna's odyssey surged, a tapestry woven with animal aid and music that echoed their souls. Yet, beneath the surface contentment, a burning desire simmered — a thirst to magnify their impact. Under the moon's punk rock glare, Max's slumber conjured vivid memories of his high school band, the Wolfpups.
+
+A fire ignited as dawn cracked, urging him to reconnect the fragmented pieces of his musical past, and give birth to a more rebellious, resonating movement. Luna's eyes held a gleam as they dug into dinner— a match to Max's fiery idea. Though the Wolfpups were alien to her, the raw passion etched into Max's voice sold the notion.
+
+And so, the plot unfolded. Max reached out, hunting down his old comrades. Among them, two hadn't strayed far from the hometown, their punk spirits still aflame. A stumble arose when he learned one had ventured overseas, but Max's determination refused to falter. He coaxed the stateside member, amidst doubts about his current band, revealing the grand mission that tugged at his heart. Crossing continents, Max felt the weariness of the miles, but his tenacity steeled him. He strode into an Australian music studio — a bastion of unpolished soundscapes, remnants of high school. Amidst the grimy walls, he pitched his vision — a raucous tour to champion animal causes. The final member's fist pounded on the table, sealing his alliance Back in the American turf, Max and Luna's studio became a vortex of sound and soul. Five figures — Max, Luna, Axel, Glenn, Jett, and Remy — merged their talents, weaving punk rock spells that could rattle foundations. The room's air hummed with electric camaraderie, a testament to their newfound camaraderie. Max and Luna spun tales of their exploits, kindling the same fervour in their comrades' eyes. Their new album emerged like a banshee's wail — a declaration of war against complacency. The studio walls trembled with raw power, every note etching their legacy.
+
+In those moments, the Wolfpups transformed into the Wolfpunx — a sonic juggernaut fueled by conviction and grit. Their music wasn't just sound; it was a war cry, an anthem for the voiceless. The road beckoned, a tumultuous ride through gritty stages and neon-lit dives. Their tour wasn't just about venues; it was about storming shelters, leaving donations, and damn well making sure the world knew their cause. Connecting with other bands as they marched forward, empowering the masses, creating a rock god collective, united by chords and chaos, they embarked on an epic journey, leaving behind a trail of ink-black hope in every state they marked with their sonic rebellion.\
+\
+To be continued...
